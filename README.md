@@ -1,0 +1,1 @@
+# Technocolabs-Optimizing-Stock-Trading-Strategy
